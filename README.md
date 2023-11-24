@@ -20,7 +20,7 @@ Here are some ideas to get you started:
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=sieghartcl&label=Profile%20views&color=001eff&style=plastic" alt="sieghartcl" /> </p>
 
-- 👦 **About me!** 25 years old, from the chilean south to the world. Likes singing, listening to the good rock and electronic music; playing games, streaming on Twitch at free time and when developing goes BOOM! 💣💥 (both when works and when it doesn't) 
+- 👦 **About me!** 28 years old, from the chilean south to the world. Likes singing, listening to the good rock and electronic music; playing games, streaming on Twitch at free time and when developing goes BOOM! 💣💥 (both when works and when it doesn't) 
 
 - 🗣 Spoken languages: **Spanish (native), and English (mid-level)**
 
